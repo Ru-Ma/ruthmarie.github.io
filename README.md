@@ -1,3 +1,3 @@
-# ruthmarie.github.io
+# ruthgeo.github.io
 website
  
